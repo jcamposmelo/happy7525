@@ -3,9 +3,9 @@
 ![](https://komarev.com/ghpvc/?username=kingstar0126&color=green)
 
 This is my address: <br/>
-skype😘: live:.cid.87702686344107cf
+skype😘: live:.cid.60a7e3dc3e6bee26
 <br />
-gmail 📨: popstar0126@gmail.com 
+gmail 📨: happydeveloper0816@gmail.com
 <br />
 
 ### My Working Style
